@@ -25,9 +25,5 @@
 <p align="center">ᴸᴵᴺᴷ ᵁᴺᴰᴱᴿ ᵂᴼᴿᴷ</p>
 
 ![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/3ea52f1da00b5d85333cd26be798dfe35c6e0a70/6a8c97cfe511fd8d847e6ffd18d93450.jpg)
-<p align="center">ℬ𝓁ℯ𝓈𝓈 𝓂ℯ 𝓌𝒾𝓉𝒽 𝓉𝒽ℯ</p>
- <p align="center">ℒℯ𝒶𝒻 ℴ𝒻𝒻 ℴ𝒻 𝓉𝒽ℯ 𝓉𝓇ℯℯ</p>
- <p align="center">𝒪𝓃 𝒾𝓉 𝐼 𝓈ℯℯ</p>
-<p align="center">𝒯𝒽ℯ 𝒻𝓇ℯℯ𝒹ℴ𝓂 𝓇ℯ𝒾𝑔𝓃</p>
 <p align="center">"𝚍𝚎𝚟𝚒𝚕𝚜 𝚗𝚎𝚟𝚎𝚛 𝚌𝚛𝚢"</p>
 <p align="center">⇄ ◀ 𓊕 ▶ ↻</p>
