@@ -22,6 +22,6 @@
 ![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/1a3634f2f5d4324459526f5ec71177a575bef85c/4ef06fcb5210e7aae2a3b116dbb34f9b.gif)
 
 <p align="center">"𝕵𝖆𝖈𝖐𝖕𝖔𝖙!"</p>
-<p align="center">LINK UNDER WORK</p>
+<p align="center">ᴸᴵᴺᴷ ᵁᴺᴰᴱᴿ ᵂᴼᴿᴷ</p>
 
 ![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/3ea52f1da00b5d85333cd26be798dfe35c6e0a70/6a8c97cfe511fd8d847e6ffd18d93450.jpg)
