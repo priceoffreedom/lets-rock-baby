@@ -4,7 +4,7 @@
 
  ![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/49b356270e4eef708495b95ef822f996ce57dd22/Asset.jpg)
 
-<p align="center">my name is zeph, a young adult that trying to coping with my life and love to make suicide jokes sometimes. a weird guy that could be annoying and quiet depending on how you interact with me, i love being silly with my friends and talk about my f/o with my fellow yumeshippers</p>
+<p align="center">`mᥡ ᥒᥲmᥱ іs zᥱ⍴һ, ᥲ ᥡ᥆ᥙᥒg ᥲძᥙᥣ𝗍 𝗍һᥲ𝗍 𝗍rᥡіᥒg 𝗍᥆ ᥴ᥆⍴іᥒg ᥕі𝗍һ mᥡ ᥣі𝖿ᥱ ᥲᥒძ ᥣ᥆᥎ᥱ 𝗍᥆ mᥲkᥱ sᥙіᥴіძᥱ ȷ᥆kᥱs s᥆mᥱ𝗍іmᥱs. ᥲ ᥕᥱіrძ gᥙᥡ 𝗍һᥲ𝗍 ᥴ᥆ᥙᥣძ ᑲᥱ ᥲᥒᥒ᥆ᥡіᥒg ᥲᥒძ 𝗊ᥙіᥱ𝗍 ძᥱ⍴ᥱᥒძіᥒg ᥆ᥒ һ᥆ᥕ ᥡ᥆ᥙ іᥒ𝗍ᥱrᥲᥴ𝗍 ᥕі𝗍һ mᥱ, і ᥣ᥆᥎ᥱ ᑲᥱіᥒg sіᥣᥣᥡ ᥕі𝗍һ mᥡ 𝖿rіᥱᥒძs ᥲᥒძ 𝗍ᥲᥣk ᥲᑲ᥆ᥙ𝗍 mᥡ 𝖿/᥆ ᥕі𝗍һ mᥡ 𝖿ᥱᥣᥣ᥆ᥕ ᥡᥙmᥱsһі⍴⍴ᥱrs`</p>
 
 <p align="center">────୨ৎ────BYI;────୨ৎ────</p>
 
