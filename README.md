@@ -19,3 +19,5 @@ BYI;
 "𝓘 𝓼𝓮𝓮... 𝓶𝓪𝔂𝓫𝓮 𝓼𝓸𝓶𝓮𝔀𝓱𝓮𝓻𝓮 𝓸𝓾𝓽 𝓽𝓱𝓮𝓻𝓮... 𝓪 𝓭𝓮𝓿𝓲𝓵 𝓶𝓪𝔂 𝓬𝓻𝔂 𝔀𝓱𝓮𝓷 𝓱𝓮 𝓵𝓸𝓼𝓮𝓼 𝓪 𝓵𝓸𝓿𝓮𝓭 𝓸𝓷𝓮, 𝓭𝓸𝓷'𝓽 𝔂𝓸𝓾 𝓽𝓱𝓲𝓷𝓴?"
 ***
 ![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/1a3634f2f5d4324459526f5ec71177a575bef85c/4ef06fcb5210e7aae2a3b116dbb34f9b.gif)
+
+"𝕵𝖆𝖈𝖐𝖕𝖔𝖙!"
