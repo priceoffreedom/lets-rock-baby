@@ -25,3 +25,8 @@
 <p align="center">ᴸᴵᴺᴷ ᵁᴺᴰᴱᴿ ᵂᴼᴿᴷ</p>
 
 ![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/3ea52f1da00b5d85333cd26be798dfe35c6e0a70/6a8c97cfe511fd8d847e6ffd18d93450.jpg)
+<p align="center">ℬ𝓁ℯ𝓈𝓈 𝓂ℯ 𝓌𝒾𝓉𝒽 𝓉𝒽ℯ (ℴ𝓃𝓌𝒶𝓇𝒹 𝓉ℴ 𝓉𝒽ℯ 𝓈𝒶𝒸𝓇ℯ𝒹 𝒷𝒶𝓉𝓉𝓁ℯ𝒻𝒾ℯ𝓁𝒹)</p>
+ <p align="center">ℒℯ𝒶𝒻 ℴ𝒻𝒻 ℴ𝒻 𝓉𝒽ℯ 𝓉𝓇ℯℯ (𝓌𝒽ℯ𝓇ℯ 𝒿𝓊𝓈𝓉𝒾𝒻𝒾𝒸𝒶𝓉𝒾ℴ𝓃 𝒶𝓃𝒹 𝓁𝒾𝓂𝒾𝓉𝓈 𝒶𝓇ℯ 𝓇ℯ𝓋ℯ𝒶𝓁ℯ𝒹)</p>
+ <p align="center">𝒪𝓃 𝒾𝓉 𝐼 𝓈ℯℯ (𝓉ℴℴ𝓁𝓈 ℴ𝒻 𝓈𝓉ℯℯ𝓁 𝒾𝓃 𝓇𝒶𝑔ℯ 𝓉𝒽ℯ𝓎 𝒸ℴ𝓃𝓆𝓊ℯ𝓇)</p>
+<p align="center">𝒯𝒽ℯ 𝒻𝓇ℯℯ𝒹ℴ𝓂 𝓇ℯ𝒾𝑔𝓃 (𝓌ℯℯ𝒹 ℴ𝓊𝓉 𝓉𝒽ℯ 𝓀𝒾𝓁𝓁𝒾𝓃𝑔 ℴ𝒻 𝓋𝒾𝒸𝓉𝒾𝓂'𝓈 𝓈𝓉𝒶𝓁𝓀ℯ𝓇)</p>
+<p align="center">⇄ ◀ 𓊕 ▶ ↻</p>
