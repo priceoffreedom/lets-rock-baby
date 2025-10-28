@@ -30,7 +30,7 @@
 <p align="center">"𝕵𝖆𝖈𝖐𝖕𝖔𝖙!"</p>
 <p align="center">‧₊ ᵎᵎ ⛓️🍒⛓️ ⋅ ˚✮</p>
 
-![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/3ea52f1da00b5d85333cd26be798dfe35c6e0a70/6a8c97cfe511fd8d847e6ffd18d93450.jpg)
+![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/6ec45e8ff930e4ba0c434896b6575a243ea136a3/dd39221539a9b88ba805e6ab6a851a45~2.jpg)
 <p align="center">sʜᴏᴜᴛ ᴏᴜᴛ ᴛᴏ ᴍʏ ғᴀᴠ ᴘᴇʀsᴏɴs; ᴄʀᴏss, ʟᴇʏʟᴇʏ, ᴋᴏɪ, ᴍᴏʀɢᴀɴ, ᴇᴍᴘʏ, ʀᴏᴡʀᴏᴡ, sᴜɴᴅᴀᴇ, ᴀʟғɪᴇ, ɴᴏᴄᴛ <𝟹 !!!!</p>
 <p align="center">"𝚍𝚎𝚟𝚒𝚕𝚜 𝚗𝚎𝚟𝚎𝚛 𝚌𝚛𝚢"</p>
 <p align="center">𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃</p>
